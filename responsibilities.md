@@ -6,4 +6,4 @@ Fix the broken power line - Nolan, Turner.
 
 Get Bot Guy off the skyscraper - Matthieu, Anthony, Sai.
 
-Documentation - himena(hope it's spelled correctly), Nicolas.
+Documentation - Jimena(hope it's spelled correctly), Nicolas.
